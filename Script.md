@@ -24,6 +24,8 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Kami met the Unicorn King, who granted him magic powers.
 
+Kami used all of his magic powers to make all world better and increaes happines by 1.8e10 folds.
+
 The end.
 
 ## Cast
